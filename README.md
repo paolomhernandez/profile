@@ -57,4 +57,4 @@ I spent 3+ years in finance building automated reporting systems, managing P&L, 
 
 ---
 
-*Open to Data Analyst, Business Analyst, and FP&A roles — remote or Jakarta-based.*
+*Open to Data Analyst, Business Analyst, Operations Analyst and FP&A roles — remote or Jakarta-based.*
